@@ -1,0 +1,1 @@
+# insightessenciial.shop
